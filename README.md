@@ -5,4 +5,3 @@
   <p align="center">
 <a href="https://rayshift.io/na/818955183">ＲＡＹＳＨＩＦＴ | <a href="https://theendofarottendream.atabook.org">ＡＴＡＢＯＯＫ|<a href="https://pronouns.cc/@LIE-LIKE-VORTIGERN">ＰＲＯＮＯＵＮＳ
 <div align="center">
-strictly dnc
