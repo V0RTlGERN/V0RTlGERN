@@ -6,4 +6,4 @@
  
   <div align="center">
     
-[rayshift](https://rayshift.io/na/818955183) [新book](https://theendofarottendream.atabook.org) [strawpage](https://faeriekingdomain.straw.page/)
+[rayshift](https://rayshift.io/na/818955183) [新book](https://theendofarottendream.atabook.org) [strawpage](https://oshimainoshiki.straw.page/) [fun](https://faeriekingdomain.straw.page/)
