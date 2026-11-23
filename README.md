@@ -2,7 +2,7 @@
   
   [ponytown-vietnam](https://github.com/ponytown-vietnam) , [the tempist](https://github.com/THE-TEMPIST) , [everypony](https://github.com/pt-everypony) , [bug-town](https://github.com/bug-town) , [pt-rewards](https://github.com/Ponytowns-rewards) thx for mentioning me!
 <p align="center">
-  <img src="https://github.com/V0RTlGERN/V0RTlGERN/blob/main/pony-town-%3B%20%E5%A5%88%E8%90%BD%E3%81%AE%E8%99%AB-dance-4-blinking-padded-4x.gif">
+  <img src="https://static.atlasacademy.io/JP/CharaFigure/1098274600/1098274600_merged.png">
  
   <div align="center">
     
